@@ -1,6 +1,6 @@
 Assignment details:
 
-Name- Shshank tyagi
+Name- Shashank tyagi
 
 Roll no-2401201033
 
